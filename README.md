@@ -2,4 +2,4 @@
 - I’m interested in streaming
 - I’m currently learning programming
 - My goal is to have 100k followers
-- I stream friday and saturday when i feel like it
+- I stream everyday when i feel like it
